@@ -1,2 +1,1 @@
-# irpcnct
 Tredenex Vision AI Översikt 2025 – Vad ingen berättar för dig!
